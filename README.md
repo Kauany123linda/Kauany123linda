@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+My name is kauany, i am 17 years old, I have a cat named zezinho and my favorite hobby is to whatch movies and go out with my friends.
 <!--
 **Kauany123linda/Kauany123linda** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
